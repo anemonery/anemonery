@@ -1,3 +1,3 @@
 ♱        ivan   .       🪐   ﹒
 
-˒      he   𓂃   co  /  wip    
+˒      sys   𓂃   co  /  wip    
